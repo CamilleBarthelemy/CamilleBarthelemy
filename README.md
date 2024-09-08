@@ -1,3 +1,1 @@
 - 👋 Hi, my name is @CamilleBarthelemy
-- 👀 I am interested in traveling
-- 📫 you can contact me on linkedin
