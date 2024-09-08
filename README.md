@@ -1,4 +1,3 @@
 - 👋 Hi, my name is @CamilleBarthelemy
 - 👀 I am interested in traveling
-- 🌱 I am a 3 MIAGE License student at the University of Lille
 - 📫 you can contact me on linkedin
